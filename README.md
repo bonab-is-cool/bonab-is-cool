@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @bonab-is-cool
-- 👀 I’m interested in ...
+- 👀 I’m interested in art. And nothing
 - 🌱 I’m currently learning Nothing 
 - 💞️ I’m looking to collaborate on idk
 - 📫 How to reach me: go to discord my user is freyas_wife
